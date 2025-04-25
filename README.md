@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ishani
 - 👀 I’m interested in data-related fields
 - 🌱 I’m currently learning data analysis
-- 📫 How to reach me on linkedin- https://www.linkedin.com/in/sup-ishani/
+- 📫 How to reach me- https://www.linkedin.com/in/sup-ishani/
 - 😄 Pronouns: she/her
 
 
